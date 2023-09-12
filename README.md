@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **racem.benamar@esprit.tn**
 
-- 📄 Know about my experiences [https://shorturl.at/npM28](https://shorturl.at/npM28)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
